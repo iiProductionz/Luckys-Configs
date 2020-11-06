@@ -1,5 +1,5 @@
-MY CONFIGS WORK FOR BOTH ALPHA AND REGULAR, BUT NOT OT CRACK
-I ALSO USE NO SCRIPTS
+Here's the shitter configs
+Discord: WeebGang#1576
 
 FOR HVH:
 I now have 2 configs for hvh, main and alt.
