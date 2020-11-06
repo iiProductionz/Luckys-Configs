@@ -1,4 +1,4 @@
-Here's the shitter configs
+Here's the shitters configs
 Discord: WeebGang#1576
 
 FOR HVH:
